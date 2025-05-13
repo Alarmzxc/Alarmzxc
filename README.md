@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Alarmzxc
-- 👀 I’m interested in games
+- 👀 I’m interested in games and computers
 - 🌱 I’m currently learning something intresting
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
